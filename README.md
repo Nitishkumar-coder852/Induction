@@ -1,5 +1,6 @@
 # Induction
 # MY EXPERIENCE AT GNDEC 🏫 -
+Nitish kumar
 ![Image](https://github.com/user-attachments/assets/26ad6431-c03d-4f45-be0d-478cb067872b)
 <br>#Day 1
 <br>My first day at GNDEC started all the ECE students assembling in auditorium. Gradually it started, after few minutes host invited Harpreet Mam. Lecture given by Mam made us feel like we are already part of this institute ♥️ 
